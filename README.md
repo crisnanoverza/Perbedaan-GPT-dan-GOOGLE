@@ -1,1 +1,2 @@
 # Perbedaan-GPT-dan-GOOGLE
+##
